@@ -1,1 +1,1 @@
-This is specially for Kama
+This is especially for Kama
